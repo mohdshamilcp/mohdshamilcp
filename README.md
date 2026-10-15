@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mohammed Shamil
-- 🌱 I’m currently persuing BCA degree
+- 🌱 I'm a BCA Graduate
 - 📫 Reach me mohammedshamil1110@gmail.com
 
 <!---
